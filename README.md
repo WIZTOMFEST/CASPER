@@ -5,6 +5,6 @@
 
 . . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .
 
-Graphics by my dumb friend [phaexie](https://www.tumblr.com/phaexie)
+Graphics by my dumb friend [phaexie](https://www.tumblr.com/phaexie) (it doesn't exist anymore but)
 
 <img src="https://64.media.tumblr.com/28e2b3beb9403f85b42730bbf61be116/13760564c08504a5-79/s1280x1920/1589975e2cf07c611334b90d89c3c7700a81cadd.pnj">
